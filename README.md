@@ -1,1 +1,1 @@
-taller stack overflow desarolladon en la plataforma windows 7
+taller stack overflow desarollado en la plataforma windows 7
